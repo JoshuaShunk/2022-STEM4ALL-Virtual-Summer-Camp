@@ -1,1 +1,1 @@
-# 2022-STEM4ALL-Virtual-Summer-Camp
+# 2022 STEM4ALL Virtual Summer Camp
